@@ -1,5 +1,6 @@
-<img width="498" height="351" alt="Image" src="https://github.com/user-attachments/assets/70795baa-e93e-4c15-83a2-9bd0ae986486" />
-
+<p align="center">
+  <img width="498" height="351" alt="Image" src="https://github.com/user-attachments/assets/70795baa-e93e-4c15-83a2-9bd0ae986486" />
+</p>
 <!--
 **vixypoo/vixypoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
