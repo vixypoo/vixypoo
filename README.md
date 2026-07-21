@@ -4,3 +4,7 @@
 <p align="center">
   · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 </p>
+
+<p align="center">
+  <a href="https://vixslosercorner.straw.page/">strawpage♡</a>
+</p>
