@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <a href="https://vixslosercorner.straw.page/](https://reichiyuri.straw.page">strawpage♡</a>
+  <a href="https://reichiyuri.straw.page">strawpage♡</a>
 </p>
 
 <p align="center">
