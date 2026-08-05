@@ -20,7 +20,7 @@
 
 ♡ please int! i unfortunately am a really shy person so i'll most likely not int if i don't know you well enough. however i'm always down to int! i may just be a bit awkward at first or with large groups^^
 
-♡ i'm sometimes offt, afk, making skins or gaming so w2i if you need anything!
+♡ i'm sometimes offt, afk, making skins or gaming so w2i if you need anything! i may not respond right away so please be patient with me
 
 ♡ i'm not interested in rps sorry
 
