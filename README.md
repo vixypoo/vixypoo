@@ -18,12 +18,10 @@
 <summary> more info (click on it to extend!) </summary>
 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
-♡ please int! i unfortunately am a really shy person so i'll most likely not int if i don't know you well enough. however i'm always down to int! i may just be a bit awkward at first or with large groups^^
+♡ please int! i unfortunately am a really shy person so i'll most likely not int if i don't know you well enough. however i'm always down to int! i may just be a bit awkward at first or with large groups of people i'm unfamiliar with^^
 
 ♡ i'm sometimes offt, afk, making skins or gaming so w2i if you need anything! i may not respond right away so please be patient with me
 
 ♡ i'm not interested in rps sorry
 
-♡ don't expect me to treat you kindly if you are going to be rude to me
-
-♡ ships are ok unless it's proship (& silbek, jamikali & 3rd yr x 1st yr for twst)
+♡ if i don't know you, please don't be rude to me and expect me to treat you politely
