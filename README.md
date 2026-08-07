@@ -26,4 +26,4 @@
 
 ♡ don't expect me to treat you kindly if you are going to be rude to me
 
-♡ ships are ok unless it's proship (or silbek, jamikali & 3rd yr x 1st yr for twst)
+♡ ships are ok unless it's proship (& silbek, jamikali & 3rd yr x 1st yr for twst)
