@@ -25,3 +25,5 @@
 ♡ i'm not interested in rps sorry
 
 ♡ if i don't know you, please don't be rude to me and expect me to treat you politely
+
+♡ ships are ok unless it's proship (& silbek, jamikali & any 3rd x 1st years for twst)
