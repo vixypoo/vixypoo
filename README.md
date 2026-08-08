@@ -26,4 +26,4 @@
 
 ♡ if i don't know you, please don't be rude to me and expect me to treat you politely
 
-♡ ships are ok unless it's proship (including silbek, jamikali & any 3rd x 1st years for twst)
+♡ ships are ok unless it's proship (also silbek, jamikali & any 3rd x 1st years for twst)
