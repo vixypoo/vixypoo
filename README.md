@@ -22,7 +22,7 @@
 
 ♡ i'm sometimes offt, afk, making skins or gaming so w2i if you need anything! i may not respond right away so please be patient with me
 
-♡ i'm not interested in rps sorry
+♡ please do not roleplay with me, i'm not interested in rps sorry
 
 ♡ if i don't know you, please don't be rude to me and expect me to treat you politely
 
