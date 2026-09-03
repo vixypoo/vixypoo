@@ -1,29 +1,31 @@
 <p align="center">
-  <img width="498" height="268" alt="Image" src="https://github.com/user-attachments/assets/7034577d-d11c-488c-9384-102bea90fff0" />
+  <img width="498" height="230" alt="Image" src="https://github.com/user-attachments/assets/704bfd9c-d712-4580-b754-c1235b05b5f3" />
 </p>
 <p align="center">
   · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 </p>
 
 <p align="center">
-  <a href="https://reichiyuri.straw.page">strawpage♡</a>
+  ♡ please int! i unfortunately am a shy person so i'll most likely not int first with people i'm not familiar with but i'm always down to chat
+
+<p align="center">
+  ♡ i may not respond right away so please be patient with me^^ do whisper if i don't respond back in public chat
+
+<p align="center">
+  ♡ i will ingore if you try to roleplay or be rude/weird towards me
+
+<p align="center">
+  ♡ DNI | basic DNI criteria, anyone who's 13 and under, proship/darkship & i block/hide freely
+
+<p align="center">
+  ♡ i mainly like enstars (naruP, valkP & crazybP) but i also like twst, bandori, d4dj, shinym@s, nijien & deltarune
+  
 </p>
 
 <p align="center">
-  ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
+  · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 </p>
 
-<div align="center">
-<details>
-<summary> more info (click on it to extend!) </summary>
-⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
-
-♡ please int! i unfortunately am a really shy person so i'll most likely not int if i don't know you well enough. however i'm always down to int! i may just be a bit awkward at first or with large groups of people i'm unfamiliar with^^
-
-♡ i'm sometimes offt, afk, making skins or gaming so w2i if you need anything! i may not respond right away so please be patient with me
-
-♡ please do not roleplay with me, i'm not interested in rps sorry
-
-♡ if i don't know you, please don't be rude to me and expect me to treat you politely
-
-♡ ships are ok unless it's proship (also silbek, jamikali & any 3rd x 1st years for twst)
+<p align="center">
+  remaking strawpage
+</p>
