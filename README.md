@@ -15,10 +15,10 @@
   ♡ i will ingore if you try to roleplay or be rude/weird towards me
 
 <p align="center">
-  ♡ DNI | basic DNI criteria, anyone who's 13 and under, proship/darkship & i block/hide freely
+  ♡ DNI | basic DNI criteria, anyone who's 13 and under, proship/darkship & i also block/hide freely
 
 <p align="center">
-  ♡ i mainly like enstars (naruP, valkP & crazybP) but i also like twst, bandori, d4dj, shinym@s, nijien & deltarune
+  ♡ i mainly like enstars (naruP, valkP & crazybP) but i also like twst, bandori, d4dj, persona 3-5, shinym@s, nijien & deltarune
   
 </p>
 
