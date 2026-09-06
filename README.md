@@ -27,5 +27,5 @@
 </p>
 
 <p align="center">
-  remaking strawpage
+  will remake strawpage
 </p>
