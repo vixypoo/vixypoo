@@ -18,7 +18,7 @@
   ♡ DNI | basic DNI criteria, anyone who's 13 and under, proship/darkship & i also block/hide freely
 
 <p align="center">
-  ♡ i mainly like enstars (naruP, valkP & crazybP) but i also like twst, bandori, d4dj, persona 3-5, shinym@s, nijien & deltarune
+  ♡ i mainly like enstars (naruP, valkP & crazybP) but i also like twst, bandori, d4dj, persona 3-5, shinym@s, vtubers & deltarune
   
 </p>
 
