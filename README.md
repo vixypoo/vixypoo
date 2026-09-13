@@ -6,10 +6,10 @@
 </p>
 
 <p align="center">
-  ♡ please int! i unfortunately am a shy person so i'll most likely not int first with people i'm not familiar with but i'm always down to chat
+  ♡ please int! i am shy so i'll most likely not int first with people i'm not familiar with but i'm always down to chat!
 
 <p align="center">
-  ♡ i'm not the best at initiating convos but i'll eventually warm up if we int regularly^^
+  ♡ i'm not the best at initiating convos in general, sorry guys
 
 <p align="center">
   ♡ i may not respond right away so please be patient with me^^ do whisper if i don't respond back in public chat
