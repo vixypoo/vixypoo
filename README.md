@@ -18,10 +18,10 @@
   ♡ i will ingore if you try to roleplay or be rude/weird towards me
 
 <p align="center">
-  ♡ DNI | basic DNI criteria, anyone who's 13 and under, proship/darkship & i also block/hide freely
+  ♡ DNI | basic DNI criteria, anyone who's under 13 (13 - 15 thin ice unless we are already oomfs), proship/darkship & i also block/hide freely
 
 <p align="center">
-  ♡ i'm into enstars, twst, bandori, d4dj, persona 3-5, shinym@s, vtubers & deltarune :D
+  ♡ more info in strawpage!
   
 </p>
 
@@ -30,5 +30,5 @@
 </p>
 
 <p align="center">
-  will remake strawpage, i'm lazy to at the moment
+  <a href="https://narumikarealness.straw.page">strawpage♡</a>
 </p>
