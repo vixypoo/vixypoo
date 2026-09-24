@@ -18,7 +18,7 @@
   ♡ i will ingore if you try to roleplay or be rude/weird towards me
 
 <p align="center">
-  ♡ DNI | basic DNI criteria, anyone 13 and under (14 - 15 limit int unless we are already oomfs), proship/darkship & i also block/hide freely
+  ♡ DNI | basic DNI criteria, anyone 13 and under, proship/darkship & i also block/hide freely
 
 <p align="center">
   ♡ more info in strawpage!
