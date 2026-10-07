@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/7a473f82-f782-4410-b7e9-14ac25e58d7c" />
+  <img width="498" height="174" alt="Image" src="https://github.com/user-attachments/assets/6a28a9ec-4254-474a-ad40-9245dc7dbad3" />
 </p>
 <p align="center">
   · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
