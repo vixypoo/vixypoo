@@ -21,7 +21,7 @@
   ♡ main interests are enstars, bandori & tgcf atm!
 
 <p align="center">
-  ♡ DNI | basic DNI criteria, 15 & under (idm just iwec), proship/darkship & i also block/hide freely
+  ♡ DNI | basic DNI criteria, 15 & under (idm just iwec | current oomfs are ok^^), proship/darkship & i also block/hide freely
   
 </p>
 
